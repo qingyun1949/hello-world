@@ -8,3 +8,4 @@ Besides,  I  also like  c/c++, especialy c.
 I  love my jobs.
 I  love my family.
 I  have a girl  named  lynn,  i  love  her  very  much!
+happy new year!
